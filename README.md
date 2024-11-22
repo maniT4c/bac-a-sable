@@ -3,7 +3,7 @@ Bac à sable Friends of Presta
 
 # Liste des inscrits pour la session du 22/11/2024
 
-- Thomas Roue
+- Thomas Roux
 - Jean-François Viper
 - Guillaume batier prestadown
 - FLOREZ MURILLO Daniel, Payplal
@@ -14,11 +14,11 @@ Bac à sable Friends of Presta
 - Hery Nicolas, Freelance
 - Olivier LE CORRE - Velcome ecomemrce (ex ohweb) ( pas besoin de faire de faute ici )
 - SOTRON Nicolas - PliciWeb Polutions
-- Ivan Ramirez , Kiwi
+- Ivan Ramirez , Kiwik
 - Baptiste Bonnin Abricot
 - Gonet pierre, Fraise
 - Jordan LOPES, Poire
-- Jérémie LEGRAND - Pomme
+- Jérémie LEPETIT - Kiwik
 - Olivier CLEMENCE Mario Cart
 - Drieux Arnaud (Store Commander)
 - Nicolas Jardillier PIXEL
