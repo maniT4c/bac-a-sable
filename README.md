@@ -9,7 +9,7 @@ Bac à sable Friends of Presta
 - FLOREZ MURILLO Daniel, Payplal
 - Fumseck INFO
 - BIZOTTO Christian, Welcome E-Commerce
-- Tanguy JACQUET LePopulaire87
+- Tanguy JACQUET Mediacom87
 - Alexandre Fouer - Le raporteur-Discount
 - Hery Nicolas, Freelance
 - Olivier LE CORRE - Velcome ecomemrce (ex ohweb) ( pas besoin de faire de faute ici )
