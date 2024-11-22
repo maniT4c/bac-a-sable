@@ -5,7 +5,7 @@ Bac à sable Friends of Presta
 
 - Thomas Roux
 - Jean-François Viper
-- Guillaume batier prestadown
+- Guillaume batier PrestaSafe
 - FLOREZ MURILLO Daniel, Payplal
 - Fumseck INFO
 - BIZOTTO Christian, Welcome E-Commerce
