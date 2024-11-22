@@ -22,7 +22,7 @@ Bac à sable Friends of Presta
 - Olivier CLEMENCE Mario Cart
 - Drieux Arnaud (Store Commander)
 - Nicolas Jardillier PIXEL
-- Caroline Claudel (Poy poy, Evolutive)
+- Carotte (Evolutive rulezzzzzzzz)
 - Dindault Lucas, Creabilis
 - Seddik Omar , Aiini
 - Omar Jbailli, Aikii
