@@ -20,7 +20,7 @@ Bac à sable Friends of Presta
 - Jordan LOPES, Poire
 - Jérémie LEGRAND - Pomme
 - Olivier CLEMENCE Mario Cart
-- Drieux Arnaud, Mise en Prod le Vendredi (Store Commander)
+- Drieux Arnaud (Store Commander)
 - Nicolas Jardillier PIXEL
 - Caroline Claudel (Poy poy, Evolutive)
 - Dindault Lucas, Creilis
