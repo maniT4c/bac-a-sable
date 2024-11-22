@@ -8,7 +8,7 @@ Bac à sable Friends of Presta
 - Guillaume batier prestadown
 - FLOREZ MURILLO Daniel, Payplal
 - Fumseck INFO
-- BIZOTTO Christian, Welcome E-Commerce
+- BIZOTTO Christian, Velcome E-Commerce
 - Tanguy JACQUET LePopulaire87
 - Alexandre Fouer - Le raporteur-Discount
 - Hery Nicolas, Freelance
