@@ -23,7 +23,7 @@ Bac à sable Friends of Presta
 - Drieux Arnaud, Mise en Prod le Vendredi (Store Commander)
 - Nicolas Jardillier PIXEL
 - Caroline Claudel (Poy poy, Evolutive)
-- Dindault Lucas, Creilis
+- Dindault Lucas, Creabilis
 - Seddik Omar , Aiini
 - Omar Jbailli, Aikii
 - Compin Philippe, Aikin
