@@ -5,26 +5,27 @@ Bac à sable Friends of Presta
 
 - Thomas Roux
 - Jean-François Viper
-- Guillaume batier prestadown
+- Guillaume batier PrestaSafe
 - FLOREZ MURILLO Daniel, Payplal
 - Fumseck INFO
-- BIZOTTO Christian, Velcome E-Commerce
-- Tanguy JACQUET LePopulaire87
+- BIZOTTO Christian, Welcome E-Commerce
+- Tanguy JACQUET Mediacom87
 - Alexandre Fouer - Le raporteur-Discount
 - Hery Nicolas, Freelance
 - Olivier LE CORRE - Velcome ecomemrce (ex ohweb) ( pas besoin de faire de faute ici )
 - SOTRON Nicolas - PliciWeb Polutions
 - Ivan Ramirez , Kiwik
 - Baptiste Bonnin Abricot
-- Gonet pierre, Fraise
+- Gonet pierre, Kiwik
 - Jordan LOPES, Poire
-- Jérémie LEPETIT - Kiwik
+- Jérémie LEGRAND - Kiwik
 - Olivier CLEMENCE Mario Cart
 - Drieux Arnaud (Store Commander)
 - Nicolas Jardillier PIXEL
-- Caroline Claudel (Poy poy, Evolutive)
+- Carotte (Evolutive rulezzzzzzzz)
 - Dindault Lucas, Creabilis
-- Seddik Omar , Aiini
+- Seddik Omar , Aikini
 - Omar Jbailli, Aikii
 - Compin Philippe, Aikin
 - ATATOUSSE Mohamed, Aini
+- Damien Bellegueulle - Phenix Info
