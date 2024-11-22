@@ -13,7 +13,7 @@ Bac à sable Friends of Presta
 - Alexandre Fouer - Le raporteur-Discount
 - Hery Nicolas, Freelance
 - Olivier LE CORRE - Velcome ecomemrce (ex ohweb) ( pas besoin de faire de faute ici )
-- SOTRON Nicolas - PliciWeb Polutions
+- SOTRON Nicolas - PliciWeb Solutions
 - Ivan Ramirez , Kiwik
 - Baptiste Bonnin Abricot
 - Gonet pierre, Kiwik
