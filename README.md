@@ -19,7 +19,7 @@ Bac à sable Friends of Presta
 - Gonet pierre, Fraise
 - Jordan LOPES, Poire
 - Jérémie LEGRAND - Pomme
-- Olivier CLEMENCE Mario Cart
+- Olivier CLEMENCE Diablo 4
 - Drieux Arnaud, Mise en Prod le Vendredi (Store Commander)
 - Nicolas Jardillier PIXEL
 - Caroline Claudel (Poy poy, Evolutive)
