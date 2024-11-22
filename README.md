@@ -24,7 +24,7 @@ Bac à sable Friends of Presta
 - Nicolas Jardillier PIXEL
 - Caroline Claudel (Poy poy, Evolutive)
 - Dindault Lucas, Creabilis
-- Seddik Omar , Aiini
+- Seddik Omar , Aikini
 - Omar Jbailli, Aikii
 - Compin Philippe, Aikin
 - ATATOUSSE Mohamed, Aini
