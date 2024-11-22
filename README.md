@@ -18,7 +18,7 @@ Bac à sable Friends of Presta
 - Baptiste Bonnin Abricot
 - Gonet pierre, Fraise
 - Jordan LOPES, Poire
-- Jérémie LEGRAND - Pomme
+- Jérémie LEGRAND - Kiwik
 - Olivier CLEMENCE Mario Cart
 - Drieux Arnaud, Mise en Prod le Vendredi (Store Commander)
 - Nicolas Jardillier PIXEL
