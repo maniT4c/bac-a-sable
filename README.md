@@ -16,7 +16,7 @@ Bac à sable Friends of Presta
 - SOTRON Nicolas - PliciWeb Polutions
 - Ivan Ramirez , Kiwi
 - Baptiste Bonnin Abricot
-- Gonet pierre, Fraise
+- Gonet pierre, Kiwik
 - Jordan LOPES, Poire
 - Jérémie LEGRAND - Pomme
 - Olivier CLEMENCE Mario Cart
