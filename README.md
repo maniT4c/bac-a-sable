@@ -11,7 +11,7 @@ Bac à sable Friends of Presta
 - BIZOTTO Christian, Welcome E-Commerce
 - Tanguy JACQUET Mediacom87
 - Alexandre Fouer - Le raporteur-Discount
-- Hery Nicolas, Freelance
+- Nicolas Hery, Freelance
 - Olivier LE CORRE - Velcome ecomemrce (ex ohweb) ( pas besoin de faire de faute ici )
 - SOTRON Nicolas - PliciWeb Solutions
 - Ivan Ramirez , Kiwik
