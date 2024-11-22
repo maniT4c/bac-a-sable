@@ -18,7 +18,7 @@ Bac à sable Friends of Presta
 - Baptiste Bonnin Abricot
 - Gonet pierre, Kiwik
 - Jordan LOPES, Poire
-- Jérémie LEPETIT - Kiwik
+- Jérémie LEGRAND - Kiwik
 - Olivier CLEMENCE Mario Cart
 - Drieux Arnaud (Store Commander)
 - Nicolas Jardillier PIXEL
