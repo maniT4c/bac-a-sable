@@ -14,11 +14,11 @@ Bac à sable Friends of Presta
 - Hery Nicolas, Freelance
 - Olivier LE CORRE - Velcome ecomemrce (ex ohweb) ( pas besoin de faire de faute ici )
 - SOTRON Nicolas - PliciWeb Polutions
-- Ivan Ramirez , Kiwi
+- Ivan Ramirez , Kiwik
 - Baptiste Bonnin Abricot
 - Gonet pierre, Fraise
 - Jordan LOPES, Poire
-- Jérémie LEGRAND - Pomme
+- Jérémie LEPETIT - Kiwik
 - Olivier CLEMENCE Mario Cart
 - Drieux Arnaud, Mise en Prod le Vendredi (Store Commander)
 - Nicolas Jardillier PIXEL
